@@ -23,7 +23,7 @@
 
 🌱 I’m currently learning - *Deep learning, NLP and Computer Vision*
 
-👯 I’ve recently worked with start-up companies like - *logic-valley.com *
+👯 I am  working as Data Analyst at - *Sybrid*
 
 😄 Words that describe me - *Self-motivated, Focused, Hardworking & Perfectionist.*
 
